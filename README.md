@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on peer programming
 - 📫 How to reach me vkavyasree25@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I sleep like koala when !coding
+- ⚡ Fun fact: I sleep like a koala when !coding 😛😉
 
 <!---
 KavyaVema/KavyaVema is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
